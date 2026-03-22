@@ -13,12 +13,12 @@
 
 
  ![img](https://i.imgur.com/R0oYYjK.gif) 
- ︵︵⠀⠀zix / hyperlaser ⠀⠀.
-  ⠀ she / her ⠀.⠀⠀aroace⠀⠀ (^_^)
+ ︵︵⠀⠀txtxt / txtxt ⠀⠀.
+  ⠀ txt / txt ⠀.⠀⠀txtxt⠀⠀ (^_^)
 
 
- c+h always ! int freely 
-  ⠀best seen on laptop⠀! ![e2](https://i.imgur.com/vztky60.gif)
+ txtxtxtxtxtxtxtxtxt
+  ⠀txtxtxtxt ![e2](https://i.imgur.com/vztky60.gif)
 
   ![div2](https://i.imgur.com/nAS3S18.gif)
 ⠀⠀⠀⠀⠀
