@@ -1,7 +1,7 @@
 <div align="center">
 
-i do githubs and stuff
+i do github comms
 
-< bathroom trio 3
+That one fic on ao3 ya amiable architect which is cogsworth x marcel but unfortunately it hasnt been updated in years
 
 iwc my humour isnt for everyone
