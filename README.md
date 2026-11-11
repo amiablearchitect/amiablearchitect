@@ -1,7 +1,3 @@
 <div align="center">
 
-i do github comms
-
-That one fic on ao3 ya amiable architect which is cogsworth x marcel but unfortunately it hasnt been updated in years
-
-iwc my humour isnt for everyone
+![nya](https://i.pinimg.com/1200x/d9/10/45/d91045e3e4e0d3f8d548619e5db9f0e8.jpg)
